@@ -1,1 +1,3 @@
-# healing-your-inner-child
+# *Healing Your Inner Child : 10 Sessions for Unlocking the Past to Heal the Future*
+## *In the quest for self-improvement and a more fulfilling life, many of us find ourselves hitting the same walls, repeating the same patterns, and grappling with a pervasive sense of not being “enough.” We try new habits, read self-help books, and talk it out with friends, but often the root of our struggles remains untouched. What if the key to breaking free isn’t in a new habit, but in a deeper, more compassionate conversation with a version of ourselves we may have forgotten? This is the powerful premise of “Healing Your Inner Child: 10 Self-Guided Therapy Sessions to Rediscover Yourself and Rewrite Your Story” by Pamela K. Haga, LPC.* [More details…](https://spiritualkhazaana.com/healing-your-inner-child-heal-the-future/)
+## #healingyourinnerchild #Innerchildhealing #howtohealyourinnerchild #innerchildmeaning #selfcompassion
